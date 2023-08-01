@@ -1,2 +1,2 @@
 
-I just eddite my readme file
+I just edditede my readme file
